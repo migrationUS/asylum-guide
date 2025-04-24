@@ -18,7 +18,7 @@
 
 •  工卡（EAD）申请协助：$300
 
-•  全套案件指导服务：$5000（包含以上所有内容，若面谈不通过可退 $2000，以下情况除外：① 有犯罪记录；② 提供虚假信息；③ 不配合准备案件）
+•  全套案件指导服务：$4000（包含以上所有内容，若面谈不通过可退 $2000，以下情况除外：① 有犯罪记录；② 提供虚假信息；③ 不配合准备案件）
 
   
 
@@ -28,6 +28,6 @@
 
 •  Email: migrationus66@gmail.com
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTIyNzE3MDc2NywtMjA4ODc0NjYxMiwtMj
-A4ODc0NjYxMl19
+eyJoaXN0b3J5IjpbLTEyNDQ2MDkyNjYsMTIyNzE3MDc2NywtMj
+A4ODc0NjYxMiwtMjA4ODc0NjYxMl19
 -->
